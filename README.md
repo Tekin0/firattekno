@@ -1,0 +1,2 @@
+# firattekno
+Teknoloji Fakültesi 
